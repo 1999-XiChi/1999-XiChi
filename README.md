@@ -1,4 +1,4 @@
-### Hi there is Xichi⚡
+### Hi, there is XiChi⚡
 
 ### Contact me
 1. homepage: [xichi's homepage](http://xichi.xyz/homepage/#/home)
